@@ -19,4 +19,4 @@ Step 5- Now Go To Setting > Addons > Install From Repository
 Then Install Your Favourite Repo And Enjoy 💥🔥🔥💥
 
 
-Telegram :- http://t.me/techmaxpro
+Telegram :- http://t.me/maxmentor
